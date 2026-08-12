@@ -1,0 +1,1 @@
+cara maua itu mudah 
